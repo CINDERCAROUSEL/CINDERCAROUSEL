@@ -9,9 +9,6 @@
 > i literally only made this account for ponytown cause i saw all my friends have these,,,
 > not too social at alll i just afk in the homestuck area :3 
 
-# > DNI LIST:
-; proship
-; endogenic systems 
-; generally just weird idek what to put here >_>
+=> DNI IF YOU'RE PROSHIP / ENDOGENIC / OR JUST GENERALLY WEIRD . PLEASE.
 
 <img src = "https://media1.tenor.com/m/Cki6S3gAOAAAAAAd/homestuck-fefetasprite.gif">
