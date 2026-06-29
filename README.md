@@ -2,7 +2,7 @@
 
 <img src = "https://media1.tenor.com/m/7bXPRXlevTQAAAAd/beyond-canon-mtku.gif">
 
-> we mostly go by violet online .. june also works though !!!
+> we mostly go by violet online .. juniper also works though !!!
 
 > 16yo osdd system !! (10/09)
 
